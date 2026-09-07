@@ -1,0 +1,1 @@
+# inventario-mallas-textiles
